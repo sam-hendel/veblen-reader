@@ -1,0 +1,5 @@
+# Immanuel Kant on Perpetual Peace
+
+### IMMANUEL KANT ON PERPETUAL PEACE
+
+Immanuel Kant once wrote a sketch, a century and a quarter ago, on Perpetual Peace. He prefaced it with a jest, as tasteless as it was clumsy, to say that the running title under which he wrote Zum ewigen Frieden, that is to say, The House of Peace Everlasting-was borrowed from the signboard of a certain roadside tavern adjoining a certain ancient churchyard. Compounded of bar-room and graveyard, this wise man's jest will to many readers doubtless have seemed as pointless as it is tasteless. But that will be true only of those readers of Kant who have not had the inestimable fortune to live through these days of returning peace and to witness the maudlin deliberations of that conclave of elder statesmen who are now arranging to make the world safe for the vested rights of international dissension. The point of Kant's jest is plain now. Today his readers are in a position to marvel that even that wise old man should have been so wise as all that. It is quite uncanny.
